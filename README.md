@@ -1,4 +1,4 @@
-# Manga Livre APK: Your Gateway to Endless Manga Adventures
+## Manga Livre APK: Your Gateway to Endless Manga Adventures
 
 ## Introduction
 
