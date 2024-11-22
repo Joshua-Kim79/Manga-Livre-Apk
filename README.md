@@ -1,27 +1,10 @@
-## Manga Livre APK: Your Gateway to Endless Manga Adventures
+# Manga Livre APK: Your Gateway to Endless Manga Adventures
 
 ## Introduction
 
 Manga Livre APK is a feature-rich application designed for manga enthusiasts, offering access to a vast library of manga across various genres. With its user-friendly interface and regular updates, the app ensures readers can enjoy their favorite titles anytime, anywhere. Whether you're into action-packed shonen, heartfelt shojo, or gripping seinen stories, Manga Livre APK is your all-in-one manga reading solution.
 
 In this detailed guide, we’ll explore everything you need to know about Manga Livre APK, from its features and benefits to installation instructions and tips for maximizing your reading experience.
-
----
-
-## Table of Contents
-
-1. [What is Manga Livre APK?](#what-is-manga-livre-apk)
-2. [Key Features of Manga Livre APK](#key-features-of-manga-livre-apk)
-3. [How to Download and Install Manga Livre APK](#how-to-download-and-install-manga-livre-apk)
-4. [How to Use Manga Livre APK](#how-to-use-manga-livre-apk)
-5. [Benefits of Using Manga Livre APK](#benefits-of-using-manga-livre-apk)
-6. [Tips for an Optimal Manga Reading Experience](#tips-for-an-optimal-manga-reading-experience)
-7. [Is Manga Livre APK Safe?](#is-manga-livre-apk-safe)
-8. [Common Issues and Troubleshooting](#common-issues-and-troubleshooting)
-9. [FAQs](#faqs)
-10. [Conclusion](#conclusion)
-
----
 
 ## What is Manga Livre APK?
 
